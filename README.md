@@ -31,7 +31,7 @@ Teacher List
 25. 
 26. 
 27. Maraan, Angelo F.
-28. 
+28. Nocon, Ian David A.
 29.
 30.
 
