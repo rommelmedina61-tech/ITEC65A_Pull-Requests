@@ -62,7 +62,7 @@ Teacher List
 22. Mencidor, April Joy R.
 23. Ashley, Paual M.
 24. Miguel, Donn Augusto N.
-25. 
+25. Rebancos, Lorenzo John
 26. 
 27. 
 28. 
