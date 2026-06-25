@@ -63,7 +63,7 @@ Teacher List
 23. Ashley, Paual M.
 24. Miguel, Donn Augusto N.
 25. Rebancos, Lorenzo John
-26. 
+26. Medina, Rommel
 27. 
 28. 
 29.
